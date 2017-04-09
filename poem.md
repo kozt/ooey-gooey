@@ -2,7 +2,7 @@
 
 Ooey-Gooey was a worm.
 
-A mighty worm was he.
+A [mighty worm](http://3.bp.blogspot.com/-dhmpZHIi9FQ/Vc5_ZVFcPZI/AAAAAAAATL0/w_2neSsEvoE/s1600/DannyDarkling.jpg) was he.
 
 He sat upon a railway track,
 
@@ -18,4 +18,4 @@ And scraped him off the wheel.
 
 Ooey Gooey!
 
-—Author Unknown
+—Unknown
